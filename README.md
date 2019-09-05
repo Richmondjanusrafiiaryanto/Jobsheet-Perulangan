@@ -1,2 +1,10 @@
 # Jobsheet-Perulangan
 ![Alt teks](https://github.com/Richmondjanusrafiiaryanto/Jobsheet-Perulangan/blob/master/Screenshot%20(262).png)
+![Alt teks](https://github.com/Richmondjanusrafiiaryanto/Jobsheet-Perulangan/blob/master/Screenshot%20(263).png)
+![Alt teks](https://github.com/Richmondjanusrafiiaryanto/Jobsheet-Perulangan/blob/master/Screenshot%20(264).png)
+![Alt teks](https://github.com/Richmondjanusrafiiaryanto/Jobsheet-Perulangan/blob/master/Screenshot%20(265).png)
+![Alt teks](https://github.com/Richmondjanusrafiiaryanto/Jobsheet-Perulangan/blob/master/Screenshot%20(267).png)
+![Alt teks](https://github.com/Richmondjanusrafiiaryanto/Jobsheet-Perulangan/blob/master/Screenshot%20(268).png)
+![Alt teks](https://github.com/Richmondjanusrafiiaryanto/Jobsheet-Perulangan/blob/master/Screenshot%20(269).png)
+![Alt teks](https://github.com/Richmondjanusrafiiaryanto/Jobsheet-Perulangan/blob/master/Screenshot%20(271).png)
+![Alt teks](https://github.com/Richmondjanusrafiiaryanto/Jobsheet-Perulangan/blob/master/Screenshot%20(272).png)
